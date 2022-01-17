@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @deanbarnhart
+- 👀 I’m interested in UX Design
+- 🌱 I’m currently learning VA Learning and Student
+- 💞️ I’m looking to collaborate on Virtual Airplane
+- 📫 How to reach me email or phone 425-923-3950
